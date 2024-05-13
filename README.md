@@ -1,4 +1,5 @@
-### Hi there 👋
+![image](https://github.com/ClaudCZX/claudczx/assets/34380574/8f4c4af6-2077-4e77-a46e-174de0718b2e)
+
 
 <!--
 **ClaudCZX/claudczx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
