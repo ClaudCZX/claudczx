@@ -1,4 +1,5 @@
-![image](https://github.com/ClaudCZX/claudczx/assets/34380574/8f4c4af6-2077-4e77-a46e-174de0718b2e)
+![image](https://github.com/ClaudCZX/claudczx/assets/34380574/85405d0d-803f-43ef-ab4c-9ef71f6cbe11)
+
 
 
 <!--
